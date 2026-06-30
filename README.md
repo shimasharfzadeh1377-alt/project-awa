@@ -19,3 +19,11 @@ I like the mathematic value and nature of it; I believe going back to mathemathi
 Date: June 29, 2026
 
 Day 3 ✅
+-----
+on day  four; I learned about the two methods that help us get informations from users. I learned about prompt method and confirm method.
+I liked the brain gymnastic I went through while leaning them.
+
+Date: June 30, 2026
+
+Day 4
+-----
