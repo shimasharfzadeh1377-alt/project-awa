@@ -27,3 +27,10 @@ Date: June 30, 2026
 
 Day 4 ✅
 -----
+Today my beautiful coworker and I solved a very interesting problem; the solvation contained HTML, CSS and JS and we both are very proud! I loved the nergy and the ups and downs of solving an issue. it was amazing and exillirating. 
+of course, I didn't have time to watch my JS course, but I did the real work. so, I guess I'm still on my streak!
+
+Date: July 1, 2026
+
+Day 5 ✅
+-----
