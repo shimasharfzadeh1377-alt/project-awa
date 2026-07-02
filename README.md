@@ -34,3 +34,10 @@ Date: July 1, 2026
 
 Day 5 ✅
 -----
+Today was the review day. so I just reviewed my previous lessons and practiced a little bit. tomorrow I'll practice and read some more about the things I learned to make sure I've understanded my basics.
+still on my streak, so all is well✌️
+
+Date: July 2, 2026
+
+Day 6 ✅
+-----
