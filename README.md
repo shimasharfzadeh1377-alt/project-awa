@@ -41,3 +41,11 @@ Date: July 2, 2026
 
 Day 6 ✅
 -----
+Another review day to be more prepared for new lessons tomorrow.
+
+Date: July 3, 2026
+
+Day 7 ✅
+-----
+ONE WEEK GOAL? CHECK!✅
+-----
