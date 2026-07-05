@@ -49,3 +49,10 @@ Day 7 ✅
 -----
 ONE WEEK GOAL? CHECK!✅
 -----
+didn't do any review, but worked on a real project.
+so, a win I guess?
+
+Date: July 4, 2026
+
+Day 8 ✅
+-----
